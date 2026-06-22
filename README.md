@@ -1,0 +1,1 @@
+Lets go you opened the read me i got here for you compiled version(exe) and uncompiled cpp/c++ I AM NOT RESPONSABLE FOR ANY DAMAGE CAUSED BY THIS DO NOT OPEN IT ON YOUR COMPUTER THIS IS SUPOSE TO BE ONLY FOR LEARNING PURPOSES
